@@ -3,7 +3,8 @@ template: contact-page
 slug: /contact
 title: Get in touch
 ---
-
-Got a burning question regarding **JAMstack**, Need a new **Website**, or just anything in general. We are happy to talk.
-
-Just send us a message using the form below or you can send us a DM on [Twitter](https://twitter.com/stackrole)
+There are several ways to connect with us. Email is a good start : [nile.river.connections@gmail.com](mailto:nile.river.connections@gmail.com)
+And for a quicker, more urgent response, free free to connect with us on our **WhatsApp : +201099774633**
+We also have a Facebook page : link to our facebook page!
+We have many helpful, short Blogs on different aspects of the culture in this region: link to blogs!
+Following this introduction is more detail information about Egypt. And never forget…..
