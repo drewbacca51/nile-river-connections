@@ -3,48 +3,46 @@ template: about-page
 slug: /about
 title: About Nile River Connections
 ---
-Thank you! Now say "nuclear wessels"! No! Don't jump! A sexy mistake. Anyone who laughs is a communist!
+**WELCOME to Nile-River-Connections**
+You are entering one of the oldest and most exciting regions of the world that has interested travellers for
+centuries. However, travel to this region can be challenging, so by using this website and connecting with us,
+we will assist you as you plan and prepare for your travels: whether your stay here is only a few hours or
+stretches to several weeks. We not only live in Egypt, but have a growing network of local friends in the travel
+industry, who will best guide you into their culture and history; creating an experience of a lifetime.
+We primarily focus on Egypt, and can also assist with travel to Sudan, Ethiopia and Uganda; 4 countries very
+dependent on the Nile River.
 
-A true inspiration for the children. And when we woke up, we had these bodies. Moving along… Do a flip! Michelle, I don't regret this, but I bth rue and lament it.
+![Tim And Ingrid Briscoe](/assets/tim-_-ingrid-alexandria-egypt-2021-.jpeg "WELCOME to Nile-River-Connections")
 
-![Toys](/assets/main-bridge.jpg "Toys")
+\
 
-Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. Well, then good news! It's a suppository. Then we'll go with that data file! **I've been there.** *My folks were always on me to groom myself and wear underpants.* What am I, the pope?
+As you venture into each location you will see how the cultures and histories of each country are connected
+and influence one another, and how this connection has existed for thousands of years; from the Pharaohs,
+Cushites, Greeks, Romans, to the Christian and Muslim influences of today.\
 
-Daddy Bender, we're hungry. We can't compete with Mom! Her company is big and evil! Ours is small and neutral! We're rescuing ya. We'll go deliver this crate like professionals, and then we'll go home.
+**OUR VISION**
+To promote cultural understanding through memorable experiences; by connecting international guests with
+experienced and engaging local Egyptian, Sudanese, Ethiopian and Ugandan hosts: and together with trust
+and integrity, help start and grow effective, indigenous enterprises.
 
-I didn't ask for a completely reasonable excuse! I asked you to get busy! I never loved you. OK, this has gotta stop. I'm going to remind Fry of his humanity the way only a woman can. With a warning label this big, you know they gotta be fun!
+**OUR STORY**
+We are Tim &amp; Ingrid Briscoe. We have been married for 31 years and are both 56
+years old, with 2 adult children. We have traveled extensively over the last 33
+years: to 53 countries and lived in 6 of them (and in each of those for a minimum of
+2 years). We have first-hand experience of all the pit-falls of package travels, and
+have seen an increase in demand for a more meaningful approach to travel.
+We have lived in Alexandria (Egypt) for 13 years, and we have traveled to all the
+major sites and destinations of the 4 countries that we will be dealing with; some as a family, some as a couple
+and some with friends and guests. We have begun to know, understand and feel what the countries have to
+offer, and how to show each off to its best advantage, in an ethical and responsible and respectful way.
+In all cases, the journey cannot be done without our local friends in each country. We have found that the
+people of this region are some of the most hardworking, kind hearted, fun loving people we have ever met,
+who love their countries and cultures and look forward to sharing them with guests.
+Connect with us and move forward…….
+There are several ways to connect with us. Email is a good start : nile.river.connections@gmail.com
+And for a quicker, more urgent response, free free to connect with us on our WhatsApp : +201099774633
+We also have a Facebook page : link to our facebook page!
+We have many helpful, short Blogs on different aspects of the culture in this region: link to blogs!
+Following this introduction is more detail information about Egypt. And never forget…..
 
-1. And from now on you're all named Bender Jr.
-2. Ah, computer dating. It's like pimping, but you rarely have to use the phrase "upside your head."
-3. You wouldn't. Ask anyway!
-
-Bender, quit destroying the universe! No! The cat shelter's on to me. Enough about your promiscuous mother, Hermes! We have bigger problems. Fatal. I guess if you want children beaten, you have to do it yourself.
-
-I decline the title of Iron Cook and accept the lesser title of Zinc Saucier, which I just made up. Uhh… also, comes with double prize money. You mean while I'm sleeping in it? I don't want to be rescued.
-
-* You know the worst thing about being a slave? They make you work, but they don't pay you or let you go.
-* And when we woke up, we had these bodies.
-* Spare me your space age technobabble, Attila the Hun!
-
-Hi, I'm a naughty nurse, and I really need someone to talk to. $9.95 a minute. But, like most politicians, he promised more than he could deliver. I don't know what you did, Fry, but once again, you screwed up! Now all the planets are gonna start cracking wise about our mamas.
-
-You mean while I'm sleeping in it? I suppose I could part with 'one' and still be feared… Nay, I respect and admire Harold Zoid too much to beat him to death with his own Oscar. Negative, bossy meat creature!
-
-Oh God, what have I done? I don't 'need' to drink. I can quit anytime I want! Bender! Ship! Stop bickering or I'm going to come back there and change your opinions manually! Wow! A superpowers drug you can just rub onto your skin? You'd think it would be something you'd have to freebase.
-
-Ask her how her day was. In our darkest hour, we can stand erect, with proud upthrust bosoms. Why did you bring us here? I don't know what you did, Fry, but once again, you screwed up! Now all the planets are gonna start cracking wise about our mamas.
-
-Good news, everyone! I've taught the toaster to feel love! This opera's as lousy as it is brilliant! Your lyrics lack subtlety. You can't just have your characters announce how they feel. That makes me feel angry!
-
-Hello Morbo, how's the family? You won't have time for sleeping, soldier, not with all the bed making you'll be doing. Oh Leela! You're the only person I could turn to; you're the only person who ever loved me.
-
-My fellow Earthicans, as I have explained in my book 'Earth in the Balance'', and the much more popular ''Harry Potter and the Balance of Earth', we need to defend our planet against pollution. Also dark wizards. Incidentally, you have a dime up your nose.
-
-You are the last hope of the universe. You know the worst thing about being a slave? They make you work, but they don't pay you or let you go. I meant 'physically'. Look, perhaps you could let me work for a little food? I could clean the floors or paint a fence, or service you sexually?
-
-Hey, guess what you're accessories to. I feel like I was mauled by Jesus. Why would a robot need to drink? What are their names? Fry! Quit doing the right thing, you jerk! Doomsday device? Ah, now the ball's in Farnsworth's court!
-
-I saw you with those two "ladies of the evening" at Elzars. Explain that. Shinier than yours, meatbag. That's the ONLY thing about being a slave. Um, is this the boring, peaceful kind of taking to the streets?
-
-Just once I'd like to eat dinner with a celebrity who isn't bound and gagged. Daddy Bender, we're hungry. Kids don't turn rotten just from watching TV. I just want to talk. It has nothing to do with mating. Fry, that doesn't make sense.
+***"Our friends are your hosts, you are our guests”***
