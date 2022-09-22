@@ -1,54 +1,112 @@
 ---
 template: blog-post
-title: Bread
+title: "Bread : where bread is life and life is about getting bread !"
 slug: /bread
 date: 2022-09-19 23:29
 description: Nile River Food Culture
 featuredImage: /assets/03-bread.jpg
 ---
+## **What is your staple food?**
 
-Uh, is the puppy mechanical in any way? Maybe I love you so much I love you no matter who you are pretending to be. If rubbin' frozen dirt in your crotch is wrong, hey I don't wanna be right. I found what I need. And it's not friends, it's things.
+Most of us
 
-That's the ONLY thing about being a slave. OK, if everyone's finished being stupid. Bender, we're trying our best. Fry! Stay back! He's too powerful! I just told you! **You've killed me!** _And yet you haven't said what I told you to say!_ How can any of us trust you?
+“agaenib” (Arabic for foreigners) have forgotten what it is like to be in a country that has a
 
-![Royal Mail](/assets/royal-mail-unsplash.jpg "Royal Mail from Unsplash")
+STAPLE food. If I were to ask you this question, you may immediately think of what is the popular food:
 
-## It doesn't look so shiny to me.
+In England, probably curry!
 
-No! I want to live! There are still too many things I don't own! It doesn't look so shiny to me. I'm just glad my fat, ugly mama isn't alive to see this day. Soon enough. I'm sure those windmills will keep them cool.
+In America, possibly pizza and ice-cream.
 
-![]()
+In South Africa... probably steak...?
 
-1. Guards! Bring me the forms I need to fill out to have her taken away!
-2. Have you ever tried just turning off the TV, sitting down with your children, and hitting them?
-3. You, a bobsleder!? That I'd like to see!
+But here in Egypt, the food that is:
 
-### Daylight and everything.
+* the basic dietry ite
 
-A true inspiration for the children. Anyone who laughs is a communist! Can I use the gun? Oh, how I wish I could believe or understand that! There's only one reasonable course of action now: kill Flexo!
+  * the pre-dominant daily item
+  * the main constituent
+  * and an integral part of life....
 
-- Fry! Stay back! He's too powerful!
-- Look, last night was a mistake.
-- Please, Don-Bot… look into your hard drive, and open your mercy file!
 
-And I'm his friend Jesus. One hundred dollars. There, now he's trapped in a book I wrote: a crummy world of plot holes and spelling errors! No! The cat shelter's on to me.
 
-Fry! Quit doing the right thing, you jerk! I'm sure those windmills will keep them cool. I'm Santa Claus! Leela's gonna kill me. Then we'll go with that data file!
+## IS BREAD!!
 
-That's right, baby. I ain't your loverboy Flexo, the guy you love so much. You even love anyone pretending to be him! Bite my shiny metal ass. Tell them I hate them. Yeah, and if you were the pope they'd be all, "Straighten your pope hat." And "Put on your good vestments."
+Interestingly, the Arabic word for bread
 
-That's a popular name today. Little "e", big "B"? Hey, whatcha watching? A sexy mistake. A true inspiration for the children. Shut up and get to the point!
+“aish” is similar to the word
 
-Ven ve voke up, ve had zese wodies. Oh, all right, I am. But if anything happens to me, tell them I died robbing some old man. So, how 'bout them Knicks? Oh Leela! You're the only person I could turn to; you're the only person who ever loved me.
+“to live”!
 
-Shut up and get to the point! Take me to your leader! I can explain. It's very valuable. You guys realize you live in a sewer, right?
+What type of bread is this?
 
-Robot 1-X, save my friends! And Zoidberg! Oh Leela! You're the only person I could turn to; you're the only person who ever loved me. I guess because my parents keep telling me to be more ladylike. As though!
+Well, in this country, nowadays, you can get bread which is what we would call
 
-I daresay that Fry has discovered the smelliest object in the known universe! Oh right. I forgot about the battle. Oh dear! She's stuck in an infinite loop, and he's an idiot! Well, that's love for you.
+“normal”: it comes
 
-You wouldn't. Ask anyway! Is today's hectic lifestyle making you tense and impatient? Ven ve voke up, ve had zese wodies. Doomsday device? Ah, now the ball's in Farnsworth's court!
+delivered in a small van, is in a packet, is pre-sliced and is scathingly referred to by the locals as
 
-Fatal. Maybe I love you so much I love you no matter who you are pretending to be. Really?! You can see how I lived before I met you. Alright, let's mafia things up a bit. Joey, burn down the ship. Clamps, burn down the crew.
+“toast”.
 
-Enough about your promiscuous mother, Hermes! We have bigger problems. Bender, being God isn't easy. If you do too much, people get dependent on you, and if you do nothing, they lose hope. You have to use a light touch. Like a safecracker, or a pickpocket.
+This is far from what they call bread!
+
+Shammy bread:
+
+This is what Egyptians love, and no meal is complete without it. The look, ingredients and size may vary
+
+depending on where it is made. But in the cities, there are 2 main options:
+
+1. a local
+
+   “government” bakery, usually found in the local souq (market). You usually find this by following
+
+   your nose: that wonderful permeating smell of fresh bread. That and the teeming mass of agitated people,
+
+   yelling and gesticulating to the bakers (behind bars) who are taking orders from the people. This bread is
+
+   subsidised (read: very cheap) and bought by the load... literally! They are then carted off (sometimes
+
+   literally) in bags, cardboard boxes, on pallets balanced on heads or on trays. But there is a trick: they need
+
+   to be cooled off individually, separated, before they are packed, or else they get damp, sticky and not
+
+   well! So on any surface near the bakery: pavement, table, tram seats, station....you will find these breads
+
+   laid out to
+
+   “dry”. Once they have cooled sufficiently, they will be packed up and taken home. This
+
+   process happens usually twice a day, and an average family of 6 will eat 36 per day! 2 at each
+
+   meal.....glorious!
+
+
+2. ”private” bakery: this is not the patisserie kind of bakery, but bread only! They will have
+
+
+
+large ovens inside, and then usually on the pavement a gas-type pizza oven, where
+
+they quick bake these breads. They are more expensive than the government variety,
+
+but the flour is considered to be
+
+“better”, and there are no queues.
+
+**The eating of it...**
+
+The bread is normally served up with breakfast (fuul beans, perhaps falafal) with lunch (chicken or fish, or
+
+salad with cheese) and dinner (something light). You grab a shammy, tear off a piece, and then usually use it
+
+as a “spoon” to pick up a portion of whatever the food is. Many foreigners make a sandwich of it! But with
+
+meat, cheese, salad or on its own... it is wonderful! And you will be expected to eat quite a lot of it:
+
+After all...
+
+it is the Staple food here!
+
+It brings light to their eyes, and if you enjoy it, you will gain the love of the people:
+
+Love us..... love our bread!
