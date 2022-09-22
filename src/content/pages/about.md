@@ -26,11 +26,13 @@ experienced and engaging local Egyptian, Sudanese, Ethiopian and Ugandan hosts: 
 and integrity, help start and grow effective, indigenous enterprises.
 
 **OUR STORY**
-We are Tim &amp; Ingrid Briscoe. We have been married for 31 years and are both 56
+We are Tim & Ingrid Briscoe. We have been married for 31 years and are both 56
 years old, with 2 adult children. We have traveled extensively over the last 33
 years: to 53 countries and lived in 6 of them (and in each of those for a minimum of
 2 years). We have first-hand experience of all the pit-falls of package travels, and
 have seen an increase in demand for a more meaningful approach to travel.
+
+
 We have lived in Alexandria (Egypt) for 13 years, and we have traveled to all the
 major sites and destinations of the 4 countries that we will be dealing with; some as a family, some as a couple
 and some with friends and guests. We have begun to know, understand and feel what the countries have to
@@ -38,9 +40,11 @@ offer, and how to show each off to its best advantage, in an ethical and respons
 In all cases, the journey cannot be done without our local friends in each country. We have found that the
 people of this region are some of the most hardworking, kind hearted, fun loving people we have ever met,
 who love their countries and cultures and look forward to sharing them with guests.
-Connect with us and move forward…….
-There are several ways to connect with us. Email is a good start : nile.river.connections@gmail.com
-And for a quicker, more urgent response, free free to connect with us on our WhatsApp : +201099774633
+
+
+***Connect with us and move forward…….***
+There are several ways to connect with us. Email is a good start : [nile.river.connections@gmail.com](mailto:nile.river.connections@gmail.com)
+And for a quicker, more urgent response, free free to connect with us on our **WhatsApp : +201099774633**
 We also have a Facebook page : link to our facebook page!
 We have many helpful, short Blogs on different aspects of the culture in this region: link to blogs!
 Following this introduction is more detail information about Egypt. And never forget…..
