@@ -3,7 +3,9 @@ template: blog-post
 title: "Buildings : the beautiful... and the “not-so-much” beautiful!"
 slug: /buildings
 date: 2022-09-21 21:57
-description: Buildings in Egypt, Nile River Connections
+description: "Buildings : the beautiful... and the “not-so-much” beautiful! When
+  many of us are thinking about our first trip to Egypt, our minds are full of
+  pictures: ancient Egypt majestic Pharaohs"
 featuredImage: /assets/02-buildings.jpg
 ---
 Buildings : the beautiful... and the “not-so-much” beautiful!
