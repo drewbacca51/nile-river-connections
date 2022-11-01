@@ -31,9 +31,3 @@ We also have many helpful, short Blogs on different aspects of the culture in th
 Following this introduction is more detail information about Egypt. And never forget…..
 
 ***"Our friends are your hosts, you are our guests”***
-
-
-
-***EGYPT...***
-
-***some helpful infomation but reckon blog is best????***
