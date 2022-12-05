@@ -1,6 +1,6 @@
 ---
 template: blog-post
-title: "Buildings : the beautiful... and the “not-so-much” beautiful!"
+title: "Buildings : the beautiful... and the “not-so” beautiful!"
 slug: /buildings
 date: 2022-09-21 21:57
 description: "Buildings : the beautiful... and the “not-so” beautiful! When many
@@ -8,7 +8,7 @@ description: "Buildings : the beautiful... and the “not-so” beautiful! When 
   pictures: ancient Egypt majestic Pharaohs"
 featuredImage: /assets/02-buildings.jpg
 ---
-Buildings : the beautiful... and the “not-so-much” beautiful!
+Buildings : the beautiful... and the “not-so” beautiful!
 When many of us are thinking about our first trip to Egypt, our minds are full of pictures:
 *ancient Egypt*
 majestic Pharaohs
@@ -25,13 +25,11 @@ But it does the traveller well to know that one MUST look beyond the surface, al
 about every case, all that glitters is definitely not gold! The true beauty of this country lies within
 the people themselves.
 
-
 **With eyes shut....**
 Having said that, there are some buildings that are indeed still resplendent in their majesty: most
 belong the the Military, or the Government, and when you pause to consider them, there are
 strong echoes of what entire cities once must have looked like: SIGH!
 And with a very wide stretch of imagination, you can almost visualise it.
-
 
 **With eyes open....**
 However, the majority of the buildings are.... how shall we say.... tired and sad! With the constant
@@ -51,18 +49,15 @@ Usually a cultural surprise waits for all new visitors: once you go beyond the g
 buildings, take the antiquated lifts up to the apartments, or walk the dusty marbled staircases...
 and enter into an apartment.... it is a whole new world!
 
-
 You will be welcomed, embraced and kissed (same sex only please!) and plied with cups of tea,
 fruit, biscuits and given anything that you show an interest in (be careful). You will find homes filled
 with rich colour, and shiny, bright furniture, gold glittering wherever possible, huge cupboards and
 glass everywhere.... tiny kitchens when huge meals are prepared, and of course, you will be
 expected to join in!
 
-
 These homes are filled with people, colour, tv, food, fluffy toys and many, many carpets! So take
 your shoes off, sink into the gold and burgundy chairs and sip on a lovely hot glass of tea,
 probably with mint, and lots of sugar:
-
 
 Taste and see that it is good!
 Ahlan wa Sahlan (our house is your house... you are welcome!)
