@@ -17,9 +17,9 @@ To promote cultural understanding through memorable experiences; by connecting i
 and integrity, help start and grow effective, indigenous enterprises.
 
 **OUR STORY**
-We are Tim & Ingrid Briscoe. We have been married for 31 years and are both 56 years old, with 2 adult children. We have traveled extensively over the last 33 years: to 53 countries and lived in 6 of them (and in each of those for a minimum of 2 years). We have first-hand experience of all the pit-falls of package travels, and have seen an increase in demand for a more meaningful approach to travel.
+We are Tim & Ingrid Briscoe. We have been married for 32 years and are both 57 years old, with 2 adult children. We have traveled extensively over the last 34 years: to 53 countries and lived in 6 of them (and in each of those for a minimum of 2 years). We have first-hand experience of all the pit-falls of package travels, and have seen an increase in demand for a more meaningful approach to travel.
 
-We have lived in Alexandria (Egypt) for 13 years, and we have traveled to all the major sites and destinations of the 4 countries that we will be dealing with; some as a family, some as a couple and some with friends and guests. We have begun to know, understand and feel what the countries have to
+We have lived in Alexandria (Egypt) for 14 years, and we have traveled to all the major sites and destinations of the 4 countries that we will be dealing with; some as a family, some as a couple and some with friends and guests. We have begun to know, understand and feel what the countries have to
 offer, and how to show each off to its best advantage, in an ethical and responsible and respectful way.
 In all cases, the journey cannot be done without our local friends in each country. We have found that the people of this region are some of the most hardworking, kind hearted, fun loving people we have ever met, who love their countries and cultures and look forward to sharing them with guests.
 
